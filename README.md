@@ -1,0 +1,1 @@
+# covid-cert-verify-9510000011881235-lang-ru-ck-f6aceb51eb3395851f957a6701445918
